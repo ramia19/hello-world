@@ -1,2 +1,3 @@
 # hello-world
 a repository for my MIS 250 class
+I am a 21 year old senior at DePaul. I am from Lemont, Illinois & a graduate of Lemont High School. I have a 13 year old brother who is my best friend and I spend a lot of time with. I recently took a position with the Chicago White Sox working in the player development department. I will work alongside for their minor league tema in Kannapolis, North Caolina for the 2021 summer. While I have spent time utilzing player development systems with youth and amatuer players, I will enjoy working with professionals. The challenge of attempting to make elite better is one I look forward to learn more about. 
